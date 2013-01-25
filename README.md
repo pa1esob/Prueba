@@ -1,4 +1,5 @@
-Prueba
+Accesorizate
 ======
 
-Prueba
+¡Bienvenido a Accesorizate!
+Entra en nuestra tienda
